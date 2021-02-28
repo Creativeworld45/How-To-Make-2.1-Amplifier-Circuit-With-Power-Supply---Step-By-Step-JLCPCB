@@ -1,1 +1,0 @@
-# How-To-Make-2.1-Amplifier-Circuit-With-Power-Supply---Step-By-Step-JLCPCB
