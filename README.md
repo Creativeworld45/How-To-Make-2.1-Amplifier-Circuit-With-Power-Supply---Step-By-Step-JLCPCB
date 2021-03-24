@@ -1,6 +1,8 @@
-Thanks To JLCPCB For $2 PCB Prototype With Free SMT Assembly Fee. 
+Thanks To JLCPCB.
 
-Order Now - https://jlcpcb.com
+$2 for 1-4 Layer PCBs.
+
+Get SMT Coupons: https://jlcpcb.com/RTA
 
 ---------------------------------------------------------------------------
 
